@@ -1,1 +1,2 @@
-# An-lisis-tico-Coded-Bias-
+# Análisis ético "Coded Bias"
+Hecho por Ivonne Sierra
